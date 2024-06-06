@@ -1,4 +1,4 @@
-## SEJA BEM-VINDO❗ ◝(ᵔᵕᵔ)◜
+## SEJA BEM-VINDO ❗ ◝(ᵔᵕᵔ)◜
 
 _Meu nome é Ana Livia_
 
@@ -14,4 +14,5 @@ _**2024**_
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
-![] (https://media1.tenor.com/m/w-yeIrNmK88AAAAC/rose-aesthetic.gif)
+
+![](https://media1.tenor.com/m/MoAIaTkS4TEAAAAC/gif.gif)
